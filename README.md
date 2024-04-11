@@ -1,0 +1,1 @@
+The energy consumption challenges posed by 5G networks despite their higher energy efficiency compared to 4GtheThe energy consumption challenges posed by 5G networks despite their higher energy efficiency compared to 4G.
